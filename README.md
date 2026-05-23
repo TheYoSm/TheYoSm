@@ -1,4 +1,4 @@
-![Description](https://media1.tenor.com/m/4W6lIwM8618AAAAC/beau-dreamzzz-season-3-beau-lego-dreamzzz-season-3.gif)
+<p align=center><src="https://tenor.com/fi/view/beau-dreamzzz-season-3-beau-lego-dreamzzz-season-3-beau-dreamzzz-beau-lego-dreamzzz-lego-dreamzzz-beau-gif-16244102475768720223">
 
 [Straw (a lil wip)](https://theyosm.straw.page) | [Ata](https://thesmyo.atabook.org/) | [Guns.lol](https://guns.lol/thesmyo) |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)
 
