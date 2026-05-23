@@ -1,4 +1,6 @@
-## Hi there 👋
+
+
+(a lil wip?) [Straw](https://theyosm.straw.page) | [Ata](https://thesmyo.atabook.org/) | [Guns.lol](https://guns.lol/thesmyo) |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)
 
 <!--
 **TheYoSm/TheYoSm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
