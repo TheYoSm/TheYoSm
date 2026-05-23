@@ -1,6 +1,11 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
-(a lil wip?) [Straw](https://theyosm.straw.page) | [Ata](https://thesmyo.atabook.org/) | [Guns.lol](https://guns.lol/thesmyo) |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)
+![Description](https://media1.tenor.com/m/4W6lIwM8618AAAAC/beau-dreamzzz-season-3-beau-lego-dreamzzz-season-3.gif)
+
+[Straw (a lil wip)](https://theyosm.straw.page) | [Ata](https://thesmyo.atabook.org/) | [Guns.lol](https://guns.lol/thesmyo) |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)
+
+![](https://pixels.crd.co/assets/images/gallery11/4de7b4a9.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery11/5981c57d.gif?v=29416114)
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
 <!--
 **TheYoSm/TheYoSm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
