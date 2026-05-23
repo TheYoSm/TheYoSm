@@ -1,10 +1,16 @@
-![](https://media1.tenor.com/m/4W6lIwM8618AAAAC/beau-dreamzzz-season-3-beau-lego-dreamzzz-season-3.gif)
+<div align="center">
+  <img src=https://i.pinimg.com/1200x/67/ba/55/67ba555e7c72b9bea7f681f673539e79.jpg <img width="240" height="240"
+    <div align="center">
+  
 
-*[Straw (a lil wip)](https://theyosm.straw.page) | [Ata](https://thesmyo.atabook.org/) | [Guns.lol](https://guns.lol/thesmyo) |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)*
+<sub> *[Straw (a lil wip)](https://theyosm.straw.page) | [Ata](https://thesmyo.atabook.org/) | [Guns.lol](https://guns.lol/thesmyo) |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)*
+
+
+<sub> ![](https://pixels.crd.co/assets/images/gallery11/4de7b4a9.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery62/eeba6c98.gif?v=29416114)
 
 ---
 
-![](https://pixels.crd.co/assets/images/gallery11/4de7b4a9.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery11/5981c57d.gif?v=29416114)
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6tef244arpgh8lxwie6m417qc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=212121&interchange=false&profanity=false&bar_color=62428a&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
