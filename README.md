@@ -1,5 +1,5 @@
 <div align="center">
-  <img src=https://i.pinimg.com/1200x/67/ba/55/67ba555e7c72b9bea7f681f673539e79.jpg <img width="300" height="300"
+  <img src=https://github.com/TheYoSm/TheYoSm/blob/main/DZ28Sharingsnacks.webp <img width="500" height="450"
     <div align="center">
 
   
