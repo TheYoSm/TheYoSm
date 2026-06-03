@@ -1,5 +1,5 @@
 <div align="center">
-  <img src=https://github.com/TheYoSm/TheYoSm/blob/main/DZ28Sharingsnacks.webp <img width="500" height="450"
+  <img src=https://media1.tenor.com/m/S3GDRpik7SUAAAAC/madteo-lego-dreamzzz.gif <img width="440" height="270"
     <div align="center">
 
   
@@ -7,7 +7,7 @@
 <sub> <br /> [Ata](https://thesmyo.atabook.org/)  |  [Straw](https://theyosm.straw.page)  |  [Guns.lol](https://guns.lol/thesmyo)  |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)
 
 
-<br /> ![](https://pixels.crd.co/assets/images/gallery11/4de7b4a9.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery11/5981c57d.gif?v=29416114)
+<br /> ![](https://pixels.crd.co/assets/images/gallery33/c4a53200.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery02/27117626.gif?v=29416114)
 
 ---
 
