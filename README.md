@@ -8,7 +8,7 @@
 
 <br /> ![](https://pixels.crd.co/assets/images/gallery33/c4a53200.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery02/27117626.gif?v=29416114)
 
- $\normalsize\color{#c02230}{\textsf{𝘢𝘭𝘵 𝘨𝘩 𝘢𝘤𝘤 → 𝘵𝘰 𝘴𝘦𝘱𝘢𝘳𝘢𝘵𝘦 𝘮𝘺 𝗟𝗲𝗴𝗼 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀 𝘧𝘳𝘰𝘮 𝘰𝘵𝘩𝘦𝘳 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀}}$
+ $\normalsize\color{#c02230}{\textsf{𝘢𝘭𝘵 𝘨𝘩 𝘢𝘤𝘤 → 𝘵𝘰 𝘴𝘦𝘱𝘢𝘳𝘢𝘵𝘦 𝘮𝘺 𝘰𝘵𝘩𝘦𝘳 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀 𝘧𝘳𝘰𝘮 𝗟𝗲𝗴𝗼 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀}}$
 
 <br />
 
