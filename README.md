@@ -4,7 +4,7 @@
 
 <br />
 
-<sub> <br /> [Ata](https://thesmyo.atabook.org/)  |  [Straw](https://theyosm.straw.page)  |  [Guns.lol](https://guns.lol/thesmyo)  |  [Pronouns.cc](https://pronouns.cc/@ThesmYo)
+<sub> <br /> [Ata](https://thesmyo.atabook.org/)  |  [Straw](https://theyosm.straw.page)  |  [Guns.lol](https://guns.lol/thesmyo)
 
 <br /> ![](https://pixels.crd.co/assets/images/gallery33/c4a53200.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery02/27117626.gif?v=29416114)
 
