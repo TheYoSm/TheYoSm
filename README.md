@@ -1,5 +1,5 @@
 <div align="center">
-  <img src=https://media1.tenor.com/m/uV1d0tBD5QUAAAAC/the-hero-yeet.gif <img width="460" height="270"
+  <img src=https://i.pinimg.com/1200x/3b/54/4a/3b544a541c9b4b824f95a9bf91b89aa4.jpg <img width="460" height="270"
     <div align="center">
 
 <br />
