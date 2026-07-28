@@ -1,14 +1,14 @@
 <div align="center">
-  <img src=https://i.pinimg.com/1200x/3b/54/4a/3b544a541c9b4b824f95a9bf91b89aa4.jpg <img width="460" height="270"
+  <img src=https://media1.tenor.com/m/Fy7DgjL58rIAAAAC/behind-the-broadcast-smg4.gif <img width="460" height="270"
     <div align="center">
 
 <br />
 
 <sub> <br /> [Ata](https://thesmyo.atabook.org/)  |  [Straw](https://theyosm.straw.page)  |  [Guns.lol](https://guns.lol/thesmyo)
 
-<br /> ![](https://pixels.crd.co/assets/images/gallery33/c4a53200.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery02/27117626.gif?v=29416114)
+<br /> ![](https://pixels.crd.co/assets/images/gallery24/d246e4c8.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery24/86be4139.gif?v=29416114)
 
- $\normalsize\color{#c02230}{\textsf{𝘢𝘭𝘵 𝘨𝘩 𝘢𝘤𝘤 → 𝘵𝘰 𝘴𝘦𝘱𝘢𝘳𝘢𝘵𝘦 𝘮𝘺 𝘰𝘵𝘩𝘦𝘳 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀 𝘧𝘳𝘰𝘮 𝗟𝗲𝗴𝗼 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀}}$
+ $\normalsize\color{#2e62ab}{\textsf{𝘢𝘭𝘵 𝘨𝘩 𝘢𝘤𝘤 → 𝘵𝘰 𝘴𝘦𝘱𝘢𝘳𝘢𝘵𝘦 𝘮𝘺 𝘰𝘵𝘩𝘦𝘳 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀 𝘧𝘳𝘰𝘮 𝗟𝗲𝗴𝗼 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀}}$
 
 <br />
 
