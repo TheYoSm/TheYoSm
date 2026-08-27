@@ -1,5 +1,5 @@
 <div align="center">
-  <img src=https://media1.tenor.com/m/Fy7DgjL58rIAAAAC/behind-the-broadcast-smg4.gif <img width="460" height="270"
+  <img src=https://media1.tenor.com/m/xNYLLi4JJm0AAAAC/drama-total-total-drama.gif <img width="460" height="270"
     <div align="center">
 
 <br />
