@@ -1,14 +1,17 @@
 <div align="center">
-  <img src=https://media1.tenor.com/m/xNYLLi4JJm0AAAAC/drama-total-total-drama.gif <img width="460" height="270"
+ <img src=https://i.pinimg.com/736x/b6/18/fc/b618fc66a0fd9442ddeb338ab5d283c7.jpg <img width="500" height="250">
     <div align="center">
+<br />
+      
+<img src=https://64.media.tumblr.com/b6bbe4aa0578f0749539bfae80395ff9/d5683f598e3a168e-81/s400x600/a7cafdfada5e7a6ba9659e0fb0575dd34bc3aebd.gifv img width="500" height="30">
 
 <br />
 
 <sub> <br /> [Ata](https://thesmyo.atabook.org/)  |  [Straw](https://theyosm.straw.page)  |  [Guns.lol](https://guns.lol/thesmyo)
 
-<br /> ![](https://pixels.crd.co/assets/images/gallery24/d246e4c8.gif?v=29416114)  –   ![](https://pixels.crd.co/assets/images/gallery24/86be4139.gif?v=29416114)
+<br /> <img src=https://64.media.tumblr.com/d7010a79579e9b3c706a9a1d775c766a/a6fb77a305075612-20/s250x400/1d3d2bbffad7cf8f450fd81bc73c2b8ea8db5ce9.pnj img width="50" height="50"> ***¯***  <img src=https://64.media.tumblr.com/4c0b90590f8ec5d171c6a19dff7ad92c/a6fb77a305075612-fd/s250x400/ed4b19f6d7c8c19af813492becce2c3247c4ee05.pnj img width="50" height="50"> 
 
- $\normalsize\color{#2e62ab}{\textsf{𝘢𝘭𝘵 𝘨𝘩 𝘢𝘤𝘤 → 𝘵𝘰 𝘴𝘦𝘱𝘢𝘳𝘢𝘵𝘦 𝘮𝘺 𝘰𝘵𝘩𝘦𝘳 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀 𝘧𝘳𝘰𝘮 𝗟𝗲𝗴𝗼 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀}}$
+𝘢𝘭𝘵 𝘨𝘩 𝘢𝘤𝘤 → 𝘵𝘰 𝘴𝘦𝘱𝘢𝘳𝘢𝘵𝘦 𝘮𝘺 𝘰𝘵𝘩𝘦𝘳 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀 𝘧𝘳𝘰𝘮 𝗟𝗲𝗴𝗼 𝗰𝗼𝘀𝗽𝗹𝗮𝘆𝘀 / 𝗼𝗰𝘀
 
 <br />
 
