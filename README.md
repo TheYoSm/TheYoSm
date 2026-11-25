@@ -12,6 +12,7 @@
 ![image alt](https://64.media.tumblr.com/b9c3a95271b0acfa28aef4e9b4a50926/78bb4d0892d578fe-10/s100x200/5a23acd42d6e5d3c286c0439e0000d817ccdd78d.pnj)
 
 
+---
 <sub> <br /> [Ata](https://thesmyo.atabook.org/)  |  [Straw](https://theyosm.straw.page)  |  [Guns.lol](https://guns.lol/thesmyo)
 
 <br /> <img src=https://64.media.tumblr.com/d7010a79579e9b3c706a9a1d775c766a/a6fb77a305075612-20/s250x400/1d3d2bbffad7cf8f450fd81bc73c2b8ea8db5ce9.pnj img width="50" height="50"> ***¯***  <img src=https://64.media.tumblr.com/4c0b90590f8ec5d171c6a19dff7ad92c/a6fb77a305075612-fd/s250x400/ed4b19f6d7c8c19af813492becce2c3247c4ee05.pnj img width="50" height="50"> 
