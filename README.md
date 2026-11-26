@@ -4,6 +4,12 @@
      
 <br /> <img src=https://64.media.tumblr.com/b6bbe4aa0578f0749539bfae80395ff9/d5683f598e3a168e-81/s400x600/a7cafdfada5e7a6ba9659e0fb0575dd34bc3aebd.gifv img width="500" height="30">
 
+![image Alt](https://64.media.tumblr.com/799df728c9e3aae37fabead125a339bb/8146d7048a04084e-f4/s100x200/35dd7b2763381bfd389708ed9df2874a077568f5.pnj)
+![image Alt](https://64.media.tumblr.com/9b0f2be03a33aaef1abd50a5ed3aedf7/8146d7048a04084e-cd/s100x200/ab574cf8e31f947e1fa978f73a2c2799a1ed3507.pnj)
+![image Alt](https://64.media.tumblr.com/845ec725a6ff4e0cbd11765251fbc557/8146d7048a04084e-00/s100x200/99eea68e3320c8296fc2c034b0507ea67220faff.pnj)
+![image Alt](https://64.media.tumblr.com/e85d892b1c71d2652b3a09458edf9f77/8146d7048a04084e-1d/s100x200/0f1abb88a01a74fc5b8b0e0ed237ae1a13a66f90.pnj)
+![image Alt](https://64.media.tumblr.com/cd56b4ecaaaede541b144b99b3367918/8146d7048a04084e-bf/s100x200/6f4f7af7750d707b0812de357b1a0948ba55481c.pnj)
+
 ---
 
 <sub> <br /> [Ata](https://thesmyo.atabook.org/)  |  [Straw](https://theyosm.straw.page)  |  [Guns.lol](https://guns.lol/thesmyo)
